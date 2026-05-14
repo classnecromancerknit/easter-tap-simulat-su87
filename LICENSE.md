@@ -1,4 +1,4 @@
-#  
+#  Experience easter tap simulator like never before with easter tap simulator Scripts elite, the #1 Script. Includes silent aim and auto-collect for
 
 
 
